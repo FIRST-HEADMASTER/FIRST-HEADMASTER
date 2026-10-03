@@ -1,12 +1,15 @@
 
 
+
 <p align="center"> Approach me meticulously if you are 𝙨𝙪𝙨𝙘𝙚𝙥𝙩𝙞𝙗𝙡𝙚
 <p align="center"> 𝗣𝗧 h×c free 
 
 
 
 
-<p align="Center"> <img width="298" height="200" alt="17868944559227402697065616582462" src="https://github.com/user-attachments/assets/24588a1d-5293-4d63-9b03-8bfe8b50e3c3" />
+<p align="Center"> <img width="99" height="56" alt="17910625803691349307192209081887" src="https://github.com/user-attachments/assets/4b3739f2-2d78-4d5f-880a-0a8e6e42b187" /><img width="99" height="56" alt="17910626195528040792462897032471" src="https://github.com/user-attachments/assets/dda5c70b-97eb-43cf-8392-7725a78b8a63" /><img width="99" height="56" alt="17910626400154890185137318564414" src="https://github.com/user-attachments/assets/64435e32-152b-44a6-9f9b-ceb706301fa9" />
+
+
 
 
 
